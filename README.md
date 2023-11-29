@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [ashtacon.github.io/](ashtacon.github.io/)
 
-- 💬 Ask me about **tanya aja :v**
+- 💬 Ask me about **any question**
 
 - 📫 How to reach me **astacialvndr@gmail.com**
 
